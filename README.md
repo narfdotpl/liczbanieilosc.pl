@@ -1,0 +1,1 @@
+<http://liczbanieilosc.pl>
